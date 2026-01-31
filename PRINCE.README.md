@@ -18,6 +18,5 @@
 > homophobic / 
 > transphobic / 
 > etc. I'll let you know. 
---> just be overall respectful ^_^
---> if you respect me, i will respect you back. the treatment given is the treatment deserved.
+just be overall respectful ^_^ if you respect me, i will respect you back. the treatment given is the treatment deserved.
 ![1000004335](https://github.com/user-attachments/assets/6f8eeba0-3452-4441-879d-4da1eccde882)
