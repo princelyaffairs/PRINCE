@@ -1,3 +1,5 @@
+![1000004329](https://github.com/user-attachments/assets/b13c16df-484a-4308-9151-abed72de20f8)
+
 # GENERAL INFORMATION
 --> Welcome to my Github
 --> I'm Prince.
@@ -18,5 +20,4 @@
 > etc. I'll let you know. 
 --> just be overall respectful ^_^
 --> if you respect me, i will respect you back. the treatment given is the treatment deserved
-> ![Alt text describing the image](path/to/your/image.png)
-(https://github.com/user-attachments/assets/1a16bc41-5297-4940-bb5d-6e8608d6e62e)
+![1000004336](https://github.com/user-attachments/assets/88c20352-23e4-4788-ab76-54ad370a0fa9
