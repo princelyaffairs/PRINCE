@@ -1,4 +1,4 @@
-8# GENERAL INFORMATION
+# GENERAL INFORMATION
 --> Welcome to my Github
 --> I'm Prince.
 --> I go by he/they.
@@ -18,4 +18,3 @@
 > etc. I'll let you know. 
 --> just be overall respectful ^_^
 --> if you respect me, i will respect you back. the treatment given is the treatment deserved
-https://pin.it/mea21Wmt4
