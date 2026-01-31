@@ -18,4 +18,5 @@
 > etc. I'll let you know. 
 --> just be overall respectful ^_^
 --> if you respect me, i will respect you back. the treatment given is the treatment deserved
-> (https://github.com/user-attachments/assets/1a16bc41-5297-4940-bb5d-6e8608d6e62e)
+> ![Alt text describing the image](path/to/your/image.png)
+(https://github.com/user-attachments/assets/1a16bc41-5297-4940-bb5d-6e8608d6e62e)
