@@ -6,7 +6,7 @@
 --> I go by he/they.
 --> You'll probably find this through PT.
 --> LotF enthusiast
---> Strawpage n stuff already linked, please look at that!!# PRINCE
+--> Strawpage n stuff soon to be linked!
 # RULES?
 --> Please dont speak to me about things close to abrahamic religions. I have religious trauma.
 --> Respect my DNIs if I have one up. 
